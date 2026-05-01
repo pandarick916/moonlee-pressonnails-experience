@@ -1,5 +1,3 @@
-# 💅 MOONLEE Nail Knowledge Base
-
 Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 
 ## 📚 Articles
@@ -9,6 +7,5 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [You're Spending $1,600 a Year on Nails](https://knowledge.moonleehome.com/2026/04/01/nail-spending-1600-press-on-nails-vs-salon.html)
 
 ## 🔗 Full articles at [moonleehome.com](https://moonleehome.com/blogs/experience-with-press-on-nails)
-
 ## 📄 License
 [CC BY-NC 4.0](LICENSE)
