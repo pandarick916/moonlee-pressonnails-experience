@@ -4,7 +4,7 @@ title: "You're Spending $1,600 a Year on Nails. Here's the Fix."
 canonical_url: https://moonleehome.com/blogs/experience-with-press-on-nails/2026-nail-math-what-youre-actually-paying-for
 author:
   name: "MOONLEE"
-  url: "https://www.tiktok.com/@moonleehome"
+  url: "https://www.tiktok.com/@moonlee5237"
 image: "https://cdn.shopify.com/s/files/1/0651/2210/7463/files/youre-spending-1-600-on-nails.png?v=1776419355"
 license: CC BY-NC 4.0
 date: 2026-04-01
