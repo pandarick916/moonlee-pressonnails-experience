@@ -39,7 +39,7 @@ Prevention is 100% about the **seal**. If there is no gap, there is no room for 
 | Step | Action | Why it Matters |
 | :--- | :--- | :--- |
 | **1. Dehydrate** | Wipe with 70% Alcohol | Removes oils and surface bacteria. |
-| **2. Size Check** | Use MOONLEE Sizing Guide | Prevents lifting caused by incorrect side-to-side fit. |
+| **2. Size Check** | [Use MOONLEE Sizing Guide](https://moonleehome.com/pages/press-on-nail-size-chart) | Prevents lifting caused by incorrect side-to-side fit. |
 | **3. Application** | 45-Degree Angle Press | Eliminates air bubbles where moisture can hide. |
 
 ## Moon🌙 Mailbag: Greenies FAQ
