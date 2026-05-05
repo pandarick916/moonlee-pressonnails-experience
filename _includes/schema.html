@@ -54,11 +54,13 @@
       "@type": "Article",
       "@id": "{{ page.url | absolute_url }}#article",
       "headline": "{{ page.title }}",
+      "image": "{{ page.image | default: 'https://moonleehome.com/cdn/shop/files/logo_moonlee.png' }}",
       "datePublished": "{{ page.date | date_to_xmlschema }}",
       "author": {
         "@type": "Person",
         "name": "Moon Lee",
         "jobTitle": "Founder",
+        "url": "https://www.instagram.com/moonleehome/",
         "knowsAbout": ["press-on nails", "nail care", "nail health"],
         "sameAs": ["https://www.instagram.com/moonleehome/"]
       },
