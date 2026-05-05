@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Nail Greenies: How to Prevent, Treat & Avoid Pseudomonas from Press-ons"
-canonical_url: https://moonleehome.com/blogs/experience-with-press-on-nails/preventing-nail-greenies-pseudo-nails
+canonical_url: https://moonleehome.com/blogs/experience-with-press-on-nails/straight-up-guide-press-on-nails-greenies-pseudomonas
 author:
   name: "MOONLEE"
   url: "https://www.tiktok.com/@moonlee5237"
