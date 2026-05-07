@@ -16,6 +16,7 @@ faqs:
   - question: "Can press-on nails cause onycholysis (nail lifting)?"
     answer: "Onycholysis is typically caused by incorrect sizing or aggressive removal. Using the right size and following our gentle removal process ensures your natural nail stays healthy and snag-free."
 ---
+TL;DR: Salon gel costs ~$1,600/year. Quality press-ons cost ~$200. Same look, 87% cheaper. Here's the 12-month math.
 
 > **$480–$1,600.** That's what the average person spends on salon nails per year. $40–$120 per visit × 12 visits. Press-on nails vs salon cost isn't close. Here's the math.
 
