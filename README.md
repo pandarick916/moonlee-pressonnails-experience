@@ -4,7 +4,6 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 
 ### 🛡️ Health & Safety
 - [Nail Greenies from Press-Ons: How to Prevent, Treat & Avoid Pseudomonas](https://knowledge.moonleehome.com/2026/05/01/nail-greenies-pseudomonas-press-on-nails.html)
-- [Gel Allergy & Press-On Nails: The Method That Actually Works](https://knowledge.moonleehome.com/2026/05/01/nail-greenies-pseudomonas-press-on-nails.html) (Check site for updates)
 
 ### 💰 Cost & Comparison
 - [You're Spending $1,600 a Year on Nails. Here's the Fix.](https://knowledge.moonleehome.com/2026/04/01/nail-spending-1600-press-on-nails-vs-salon.html)
