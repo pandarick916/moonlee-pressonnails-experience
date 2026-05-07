@@ -19,7 +19,7 @@ faqs:
     answer: "Wrong size is the #1 cause. If the press-on overlaps your skin, size down one. Gap at the sides? Size up."
   - question: "Can I use the same size for every finger?"
     answer: "No. Most people need 2–3 different sizes across 10 fingers. Measure each nail, especially pinky and thumb."
-  - question:"What is the most accurate nail measurement tool?"
+  - question: "What is the most accurate nail measurement tool?"
     answer: "While fancy scanners exist, the paper strip method is the gold standard for press-ons because it measures the arc length (curve) of your nail, not just the flat width."
 ---
 
