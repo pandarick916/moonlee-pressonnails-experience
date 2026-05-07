@@ -16,6 +16,7 @@ faqs:
   - question: "How do I prevent greenies when using press-on nails?"
     answer: "The key is proper prep: 1. Use 70% isopropyl alcohol to dehydrate the nail. 2. Ensure a perfect seal with no air bubbles. 3. Choose the correct size—nails that are too small or too large are prone to lifting."
 ---
+TL;DR: "Greenies" aren't mold—they're bacteria (Pseudomonas) trapped by lifting nails. Treat them by keeping the nail dry and exposed to air. Prevent them with a perfect seal and proper prep.
 
 Did you just pop off a press-on nail only to find a scary green or yellow-brown stain underneath? Don't panic. It's not mold, and your nail isn't "rotting." You've likely encountered **"Greenies"** (technically known as *Pseudomonas bacterial infection*).
 
