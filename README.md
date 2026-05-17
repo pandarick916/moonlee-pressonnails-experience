@@ -7,7 +7,8 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 
 ### 💰 Cost & Comparison
 - [You're Spending $1,600 a Year on Nails. Here's the Fix.](https://knowledge.moonleehome.com/2026/04/01/nail-spending-1600-press-on-nails-vs-salon.html)
-
+- [Press-On Nails Glue vs. Adhesive Tabs: Debunking the 21-Day Myth](https://knowledge.moonleehome.com/2026/05/17/press-on-nails-glue-vs-adhesive-tabs-myth.html)
+  
 ### 📏 Sizing & Fit
 - [How to Measure Press-On Nail Size: The Professional Guide](https://knowledge.moonleehome.com/2026/05/07/how-to-measure-press-on-nail-size.html)
 
