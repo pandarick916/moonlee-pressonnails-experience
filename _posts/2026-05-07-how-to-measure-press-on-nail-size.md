@@ -23,7 +23,7 @@ faqs:
     answer: "While fancy scanners exist, the paper strip method is the gold standard for press-ons because it measures the arc length (curve) of your nail, not just the flat width."
 ---
 
-> **TL;DR:** Wrap a paper strip around your nail, mark it, measure in mm, match to the chart. Size down if between sizes. Done in 30 seconds.
+> **TL;DR:** Wrap a paper strip around your nail, mark it, measure in mm, match to the chart. Between sizes? Go up. Done in 30 seconds.
 
 Sizing is the #1 reason press-on nails fail — not the glue, not the brand. "how do y'all get the perfect size😭" is one of the most common questions in every press-on nail community. Wrong size = lifting by day two, floating edges, a set that looks nothing like the product photo.
 
@@ -43,7 +43,7 @@ Repeat for each finger. Most people need 2–3 different sizes across 10 nails. 
 
 ## Size Up or Size Down?
 
-**Size down. Always.**
+**Size up. Always.**
 
 A press-on that's 0.5mm too wide overlaps onto skin. That contact point is where lifting starts — within 24 hours, sometimes less. Slightly narrow sits flush and holds longer.
 
@@ -72,7 +72,7 @@ Fix: warm the press-on with a hair dryer (5–10 seconds), press and hold 30 sec
 | Too curved for flat nail bed | Gaps at center/sides | Heat + press, or different shape |
 | Correct fit | Lasts 7–14 days | — |
 
-Proper fit, proper application — this determines wear time more than glue brand.
+Wrong size, wrong result, every time.
 
 ## Moon🌙 Mailbag
 
@@ -80,7 +80,7 @@ Proper fit, proper application — this determines wear time more than glue bran
 Paper strip around the widest part of your nail. Mark, measure in mm, match to chart. 30 seconds.
 
 ### Should I size up or size down?
-Size down. Overlap onto skin = lifting. Slightly narrow holds longer than slightly wide.
+Size up. Overlap onto skin = lifting. Slightly narrow holds longer than slightly wide.
 
 ### What size for wide nail beds?
 Measure at the widest point. Short squoval or short almond — lower profile, fewer edge gaps.
