@@ -4,7 +4,7 @@ url: https://knowledge.moonleehome.com
 baseurl: ""
 theme: minima
 
-og_image: https://moonleehome.com/cdn/shop/files/logo_moonlee.png
+og_image: https://cdn.shopify.com/s/files/1/0651/2210/7463/files/logo_moonlee_pixel.png?v=1781500681
 
 plugins:
   - jekyll-sitemap
