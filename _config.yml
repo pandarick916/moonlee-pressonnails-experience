@@ -4,5 +4,23 @@ url: https://knowledge.moonleehome.com
 baseurl: ""
 theme: minima
 
+og_image: https://moonleehome.com/cdn/shop/files/logo_moonlee.png
+
 plugins:
   - jekyll-sitemap
+
+# Jekyll SEO
+lang: en_US
+
+# Remove old posts from sitemap after 1 year
+future: false
+show_drafts: false
+
+defaults:
+  - scope:
+      path: ""
+      type: "posts"
+    values:
+      layout: "post"
+      author: "MOONLEE"
+      license: "CC BY-NC 4.0"
