@@ -5,7 +5,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 ### 🛡️ Health & Safety
 - [The Ultimate Guide to Damage-Free Press-On Removal: The 'Shadow-Removal' Protocol— MOONLEE](https://knowledge.moonleehome.com/2026/03/31/the-ultimate-guide-to-damage-free-removal-how-to-save-your-natural-nails-moonlee-1.html)
 - [Green Nails After Press-Ons? Here's What It Is & How to Fix It (Pseudomonas Guide)](https://knowledge.moonleehome.com/2026/04/02/straight-up-guide-press-on-nails-greenies-pseudomonas.html)
-- [MOONLEE Tested: The Ultimate Damage-Free Removal Guide | Stop Using Dental Floss!](https://knowledge.moonleehome.com/2026/04/03/no-nonsense-guide-how-to-remove-press-on-nails-without-damage.html)
+- [MOONLEE Tested: The Ultimate Damage-Free Removal Guide — Stop Using Dental Floss!](https://knowledge.moonleehome.com/2026/04/03/no-nonsense-guide-how-to-remove-press-on-nails-without-damage.html)
 - [Gel Allergy? Why Press-On Nails Are Your Safest Bet](https://knowledge.moonleehome.com/2026/05/27/gel-allergy-press-on-nails-safest-option.html)
 - [Green Nail After Press-Ons? Here Is What It Is, How to Fix It, and How to Prevent It From Coming Back](https://knowledge.moonleehome.com/2026/06/21/green-nail-after-press-ons-here-is-what-it-is-how-to-fix-it-and-how-to-prevent-it-from-coming-back.html)
 
