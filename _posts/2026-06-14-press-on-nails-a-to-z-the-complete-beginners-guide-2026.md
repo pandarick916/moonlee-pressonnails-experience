@@ -54,7 +54,7 @@ This is the mistake I made on my first set. Bought a cute design, nails were sli
 
 Press-on nails need to sit flush against your nail bed — edge to edge, zero gaps. Any gap lets in moisture. Moisture causes lifting. Lifting leads to greenies — **Pseudomonas aeruginosa** bacteria that move into the pocket between your nail and the press-on. A 2024 study on nail adhesion confirmed that surface moisture is the single biggest variable affecting bond strength on nail plates. [2](https://pmc.ncbi.nlm.nih.gov/articles/PMC10819305/)
 
-![How to measure nail size using a credit card for press-on nails, beginner tutorial | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Close_up_photo_of_someone_meas_2026-06-13T08-27-49_110458c0-86f3-4b34-b69d-75f5e9f101fb_sqsh.webp?v=1781344221)
+![How to measure nail size using a credit card for press-on nails, beginner tutorial— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Close_up_photo_of_someone_meas_2026-06-13T08-27-49_110458c0-86f3-4b34-b69d-75f5e9f101fb_sqsh.webp?v=1781344221)
 
 No ruler needed. A credit card works — or use the free online tool below.
 
@@ -116,7 +116,7 @@ The most common question I see: [how to make press-on nails last 2 weeks](https:
 
 ## Step 5 — Remove Without Damage
 
-![Safe press-on nail removal method, soaking fingers in warm water with cuticle oil | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Person_safely_removing_press_o_2026-06-13T08-27-49_4e6f0482-04b1-42c5-825d-1ea61aa1342d_sqsh.webp?v=1781344240)
+![Safe press-on nail removal method, soaking fingers in warm water with cuticle oil— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Person_safely_removing_press_o_2026-06-13T08-27-49_4e6f0482-04b1-42c5-825d-1ea61aa1342d_sqsh.webp?v=1781344240)
 
 Soak, don't rip. This is where most nail damage actually happens.
 

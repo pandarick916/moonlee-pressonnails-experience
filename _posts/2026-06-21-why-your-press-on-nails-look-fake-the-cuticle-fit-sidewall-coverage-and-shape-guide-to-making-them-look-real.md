@@ -22,7 +22,7 @@ If the base of your press-on does not follow the curve of your natural cuticle l
 
 It takes ten seconds per nail: hold the press-on against your nail, note where the cuticle edge overlaps your natural shape, and file that area with a fine-grit file to match your nail bed curve. Most press-ons come with a square or slightly rounded cuticle base. Most people have round nail beds. Filing that one edge is the highest-impact adjustment you can make.
 
-![The Cuticle Gap: The #1 Tell of Press-On Nails — wrong vs right cuticle fit, hold and check, file edge, perfect fit | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/A_hand_drawn_cartoon_infograph_2026-06-22T10-12-19_sqsh.webp)
+![The Cuticle Gap: The #1 Tell of Press-On Nails — wrong vs right cuticle fit, hold and check, file edge, perfect fit— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/A_hand_drawn_cartoon_infograph_2026-06-22T10-12-19_sqsh.webp)
 
 ---
 
@@ -32,7 +32,7 @@ If the press-on does not reach both edges of your natural nail, the exposed nail
 
 If the press-on is too narrow, use a different size or a different brand with wider options. If it is slightly too wide, file the sides inward — but only the artificial nail, never your natural nail. If the press-on does not fit and you are filing your natural side walls to make it work, stop. That permanently thins your nail plate.
 
-![Sidewall Coverage: Edge to edge, no gaps — moisture trap vs full coverage, never file natural nails, file press-on only | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/A_hand_drawn_cartoon_infograph_2026-06-22T10-12-29_sqsh.webp)
+![Sidewall Coverage: Edge to edge, no gaps — moisture trap vs full coverage, never file natural nails, file press-on only— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/A_hand_drawn_cartoon_infograph_2026-06-22T10-12-29_sqsh.webp)
 
 ---
 
@@ -42,7 +42,7 @@ This took me embarrassingly long to figure out. I kept buying coffin shapes beca
 
 Round nail beds look best with almond, oval, or round press-ons. Square nail beds work with square, squoval, or coffin. Wide nail beds benefit from almond or oval, which visually narrow the width. Narrow nail beds need slightly longer shapes than you'd expect — shorter lengths on narrow beds expose too much natural nail underneath.
 
-![Match Your Nail Bed: round, square, wide, narrow nail bed shapes and best matching press-on nail shapes | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/A_hand_drawn_cartoon_infograph_2026-06-22T10-12-49_sqsh.webp)
+![Match Your Nail Bed: round, square, wide, narrow nail bed shapes and best matching press-on nail shapes— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/A_hand_drawn_cartoon_infograph_2026-06-22T10-12-49_sqsh.webp)
 
 ---
 
@@ -50,7 +50,7 @@ Round nail beds look best with almond, oval, or round press-ons. Square nail bed
 
 One more thing I do every time: I trim the press-on shorter before I even put it on my nail. When a press-on extends way past your natural nail length, you can see exactly where the press-on starts and your nail ends. Trimming it down before application hides that line. I use clippers meant for acrylic nails — regular nail clippers can crack the press-on.
 
-![Trim First, Apply Second — trim press-on before application using acrylic clippers for a seamless natural look | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/A_hand_drawn_cartoon_infograph_2026-06-22T10-13-57_sqsh.webp)
+![Trim First, Apply Second — trim press-on before application using acrylic clippers for a seamless natural look— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/A_hand_drawn_cartoon_infograph_2026-06-22T10-13-57_sqsh.webp)
 
 ---
 

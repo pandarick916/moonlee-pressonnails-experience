@@ -31,7 +31,7 @@ Cat eye press-on nails have been trending on Reddit for weeks, and they're not s
 
 **Why it works for summer:** The metallic sheen catches sunlight in a way that solid colors don't. Cat eye nails look dynamic — they shift when you move, which is perfect for outdoor events, vacations, and summer parties.
 
-![Lychee Cotta Press On Nails Flat Lay – Rose Gold Aurora Short Almond | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/rose-gold-chrome-nails-textile-background_sqsh_1.webp?v=1778399702)
+![Lychee Cotta Press On Nails Flat Lay – Rose Gold Aurora Short Almond— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/rose-gold-chrome-nails-textile-background_sqsh_1.webp?v=1778399702)
 
 the metallic sheen catches sunlight in a way that solid colors don't.
 

@@ -16,7 +16,7 @@ That set the tone for what I kept seeing everywhere in 2026. Mixed patterns, bri
 
 ---
 
-![Mixed pattern press-on nails set with stripes, polka dots and star charms on pink base | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_60600d8b-9d58-41b6-8502-2604a157e639.png?v=1781592923)
+![Mixed pattern press-on nails set with stripes, polka dots and star charms on pink base— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_60600d8b-9d58-41b6-8502-2604a157e639.png?v=1781592923)
 
 Mixed patterns on a single set — each nail tells a different story.
 
@@ -34,7 +34,7 @@ I kept seeing the same three things across trend reports, Reddit threads, and Pi
 
 **Mixed patterns on one set.** Stripes on the thumb, polka dots on the index, a solid color with a single star charm on the middle — that's what makes it work. The palette is what holds it together: keep the base tones within the same family (pastels, neons, or jewel tones) so the patterns clash without feeling random. If you're not sure which [nail shape](https://moonleehome.com/blogs/experience-with-press-on-nails/why-press-on-nails-dont-look-right-shape-guide) suits your hand, that's worth sorting out before you pick a set.
 
-![Press-on nail set showing stripes, dots, stars and checkers mixed patterns on one hand | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/20260511161553_sqsh.webp?v=1781592825)
+![Press-on nail set showing stripes, dots, stars and checkers mixed patterns on one hand— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/20260511161553_sqsh.webp?v=1781592825)
 
 Stripes, dots, stars, and checkers — all on one set.
 
@@ -44,7 +44,7 @@ Stripes, dots, stars, and checkers — all on one set.
 
 ---
 
-![Cosmic Dark Star Press On Nails with chrome spiral and rhinestone detail on dark base | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/2_sqsh.webp?v=1778489551)
+![Cosmic Dark Star Press On Nails with chrome spiral and rhinestone detail on dark base— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/2_sqsh.webp?v=1778489551)
 
 Cosmic Dark Star — 3D star charm detail, holds up fine for daily wear including typing.
 
@@ -54,7 +54,7 @@ People always ask if loud nails fight with the outfit. They don't — playful na
 
 For a date night, the nails do the work. Solid black or white outfit, colorful patterned nails, one accessory that picks up a color from the set. The photo below is a good example — hot pink playful nails with a blush pink silk blouse and rose pink tailored trousers, the tonal palette keeps it from looking like too much.
 
-![Playful pop press-on nails styled with tonal pink outfit — blush silk blouse and rose trousers | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/3D__sqsh.webp?v=1781593942)
+![Playful pop press-on nails styled with tonal pink outfit — blush silk blouse and rose trousers— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/3D__sqsh.webp?v=1781593942)
 
 Playful nails styled with a tonal pink outfit — the nails lead, the clothes follow.
 

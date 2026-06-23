@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "The Ultimate Guide to Damage-Free Press-On Removal: The 'Shadow-Removal' Protocol | MOONLEE"
+title: "The Ultimate Guide to Damage-Free Press-On Removal: The 'Shadow-Removal' Protocol — MOONLEE"
 canonical_url: https://moonleehome.com/blogs/experience-with-press-on-nails/the-ultimate-guide-to-damage-free-removal-how-to-save-your-natural-nails-moonlee-1
 author:
   name: "MOONLEE"

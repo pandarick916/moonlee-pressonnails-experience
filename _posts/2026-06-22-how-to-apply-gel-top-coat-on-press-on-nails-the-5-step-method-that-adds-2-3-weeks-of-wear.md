@@ -31,7 +31,7 @@ Reddit users who use gel top coat on press-ons consistently report 2-3 weeks of 
 
 The one requirement: you need a UV or LED lamp. Gel top coat does not air-dry. Without a lamp, it stays sticky forever and will pick up lint, dust, and fingerprints. If you do not own a lamp, skip gel top coat entirely — a high-quality regular top coat is better than gel you cannot cure.
 
-![The Press-On Longevity Guide: Regular vs. Gel Top Coat — comparison of wear time, drying method, and chip resistance | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Press-On_Longevity_Comparison_Guide_sqsh.webp)
+![The Press-On Longevity Guide: Regular vs. Gel Top Coat — comparison of wear time, drying method, and chip resistance— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Press-On_Longevity_Comparison_Guide_sqsh.webp)
 
 ---
 
@@ -47,7 +47,7 @@ The one requirement: you need a UV or LED lamp. Gel top coat does not air-dry. W
 
 **5. Wipe with alcohol if needed.** Some gel top coats leave a sticky inhibition layer after curing. A quick alcohol wipe removes the sticky layer.
 
-![The Gel Top Coat Rule: Lamp or No Lamp — UV/LED curing guide, sticky forever trap, 60 seconds to set, seal the free edge | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Gel_Top_Coat_Usage_Guide_sqsh.webp)
+![The Gel Top Coat Rule: Lamp or No Lamp — UV/LED curing guide, sticky forever trap, 60 seconds to set, seal the free edge— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Gel_Top_Coat_Usage_Guide_sqsh.webp)
 
 ---
 
@@ -59,7 +59,7 @@ Google Search Console data for this week shows specific search terms that have z
 
 **Gel top coat as nail glue:** No. Gel top coat is not an adhesive — it is a protective coating. It does not create the same bond strength as cyanoacrylate nail glue. Nails will pop off within hours.
 
-![Gel Top Coat vs Gel Base Coat vs As Nail Glue — safe and effective, try carefully, do not use | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-23-18_sqsh.webp)
+![Gel Top Coat vs Gel Base Coat vs As Nail Glue — safe and effective, try carefully, do not use— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-23-18_sqsh.webp)
 
 ---
 
@@ -73,7 +73,7 @@ Google Search Console data for this week shows specific search terms that have z
 
 **Using gel top coat without a lamp.** Gel top coat does not dry — ever — without UV/LED curing. It remains a sticky mess that collects everything you touch.
 
-![4 Mistakes That Ruin Gel Top Coat on Press-On Nails: curing over wet glue, thick application, skipping free edge, no UV/LED lamp | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-23-48_sqsh.webp)
+![4 Mistakes That Ruin Gel Top Coat on Press-On Nails: curing over wet glue, thick application, skipping free edge, no UV/LED lamp— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-23-48_sqsh.webp)
 
 ---
 
@@ -91,7 +91,7 @@ A: Generally no. You're applying gel to a press-on, not a natural nail — so th
 **Q: Can I use gel top coat as nail glue?**
 A: No. Gel top coat is a protective layer, not an adhesive. It will not bond a press-on nail to your natural nail with any meaningful strength.
 
-![Gel Top Coat on Press-Ons Quick Answers: longer wear yes, without UV lamp no, need base coat no, work as nail glue no | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-24-28_sqsh.webp)
+![Gel Top Coat on Press-Ons Quick Answers: longer wear yes, without UV lamp no, need base coat no, work as nail glue no— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-24-28_sqsh.webp)
 
 ---
 
