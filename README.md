@@ -3,10 +3,11 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 ## 📚 Articles
 
 ### 🛡️ Health & Safety
+- [The Ultimate Guide to Damage-Free Press-On Removal: The 'Shadow-Removal' Protocol | MOONLEE](https://knowledge.moonleehome.com/2026/03/31/the-ultimate-guide-to-damage-free-removal-how-to-save-your-natural-nails-moonlee-1.html)
 - [Green Nails After Press-Ons? Here's What It Is & How to Fix It (Pseudomonas Guide)](https://knowledge.moonleehome.com/2026/04/02/straight-up-guide-press-on-nails-greenies-pseudomonas.html)
-- [The Ultimate Guide to Damage-Free Press-On Removal: The "Shadow-Removal" Protocol | MOONLEE](https://knowledge.moonleehome.com/2026/03/31/the-ultimate-guide-to-damage-free-removal-how-to-save-your-natural-nails-moonlee-1.html)
 - [MOONLEE Tested: The Ultimate Damage-Free Removal Guide | Stop Using Dental Floss!](https://knowledge.moonleehome.com/2026/04/03/no-nonsense-guide-how-to-remove-press-on-nails-without-damage.html)
 - [Gel Allergy? Why Press-On Nails Are Your Safest Bet](https://knowledge.moonleehome.com/2026/05/27/gel-allergy-press-on-nails-safest-option.html)
+- [Green Nail After Press-Ons? Here Is What It Is, How to Fix It, and How to Prevent It From Coming Back](https://knowledge.moonleehome.com/2026/06/21/green-nail-after-press-ons-here-is-what-it-is-how-to-fix-it-and-how-to-prevent-it-from-coming-back.html)
 
 ### 💰 Cost & Comparison
 - [Nail Glue vs Sticky Tabs for Press-On Nails: Honest Ranked Breakdown](https://knowledge.moonleehome.com/2026/04/09/press-on-nail-glue-vs-tabs-21-day-wear-myth.html)
@@ -16,15 +17,21 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 ### 📏 Sizing & Fit
 - [Press-On Nails for Flat Nail Beds: The Ultimate Guide (Stop the C-Curve Torture)](https://knowledge.moonleehome.com/2026/04/11/stop-the-c-curve-torture-pain-flat-nail-beds.html)
 - [Free Online Nail Size Tool: Measure Your Press-On Nail Size in 30 Seconds](https://knowledge.moonleehome.com/2026/04/23/measure-finger-size-30-seconds-credit-card-tool.html)
+- [Introducing the MOONLEE Nail Typing System: What Your Nail Bed Says About Which Press-Ons Fit](https://knowledge.moonleehome.com/2026/06/17/introducing-the-moonlee-nail-typing-system-what-your-nail-bed-says-about-which-press-ons-fit.html)
+- [Why Your Press-On Nails Look Fake: The Cuticle Fit, Sidewall Coverage and Shape Guide to Making Them Look Real](https://knowledge.moonleehome.com/2026/06/21/why-your-press-on-nails-look-fake-the-cuticle-fit-sidewall-coverage-and-shape-guide-to-making-them-look-real.html)
 
 ### 💅 Application & Wear
 - [How to Make Press-On Nails Last 2 Weeks (Step-by-Step 2026 Guide)](https://knowledge.moonleehome.com/2026/04/19/how-to-make-press-on-nails-last-2-weeks.html)
 - [Oily Nail Beds? Your Press-Ons Won't Stick Until You Fix This](https://knowledge.moonleehome.com/2026/06/07/oily-nail-beds-your-press-ons-wont-stick-until-you-fix-this.html)
 - [The Hybrid Method for Press-On Nails: Reddit Swears By It, But Should You?](https://knowledge.moonleehome.com/2026/06/08/hybrid-method-press-on-nails-glue-tabs-plus-nail-glue.html)
+- [Nail Prep Routine for Press-Ons: The 4-Step Guide That Makes Them Last 2 Weeks](https://knowledge.moonleehome.com/2026/06/21/nail-prep-routine-for-press-ons-the-4-step-guide-that-makes-them-last-2-weeks.html)
+- [How to Apply Gel Top Coat on Press-On Nails: The 5-Step Method That Adds 2-3 Weeks of Wear](https://knowledge.moonleehome.com/2026/06/22/how-to-apply-gel-top-coat-on-press-on-nails-the-5-step-method-that-adds-2-3-weeks-of-wear.html)
 
 ### 🎨 Style & Trends
 - [Why Y2K Press-On Nails are the Ultimate 2026 Mood](https://knowledge.moonleehome.com/2026/03/29/why-y2k-press-on-nails-are-the-ultimate-2026-mood-moonlee.html)
 - [Prom 2026 Nails & Tuscan Aesthetics](https://knowledge.moonleehome.com/2026/04/17/prom-2026-nails-tuscan-aesthetics.html)
+- [Summer 2026 Press-On Nail Trend Report: Cat Eye, Chrome, and Vacation-Proof Longevity](https://knowledge.moonleehome.com/2026/06/15/summer-2026-press-on-nail-trend-report-cat-eye-chrome-and-vacation-proof-longevity.html)
+- [Playful Pop Press-On Nails: Stripes, Polka Dots and 3D Charms Are Back for Summer 2026](https://knowledge.moonleehome.com/2026/06/16/playful-pop-press-on-nails-stripes-polka-dots-and-3d-charms-are-back-for-summer-2026.html)
 
 ### 📖 Other
 - [Press-On Nails for Work: The Workday Series by MOONLEE](https://knowledge.moonleehome.com/2026/04/01/press-on-nails-for-work-workday-series.html)
@@ -35,6 +42,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Press On Nails for Typing All Day: Your Keyboard Is the Real Enemy](https://knowledge.moonleehome.com/2026/06/08/press-on-nails-for-typing-all-day-your-keyboard-is-the-real-enemy.html)
 - [Why Your Press-On Nails Never Look Quite Right (And the 3-Step Fix)](https://knowledge.moonleehome.com/2026/06/12/why-press-on-nails-dont-look-right-shape-guide.html)
 - [Press-On Nails A to Z: The Complete Beginner's Guide (2026)](https://knowledge.moonleehome.com/2026/06/14/press-on-nails-a-to-z-the-complete-beginners-guide-2026.html)
+- [Custom Hand-Painted Press-On Nails: Why Reddit Can't Get Enough (And How to Order Your First Set)](https://knowledge.moonleehome.com/2026/06/16/custom-hand-painted-press-on-nails-why-reddit-cant-get-enough-and-how-to-order-your-first-set.html)
 
 ## 🌐 Full articles at [moonleehome.com](https://moonleehome.com/blogs/experience-with-press-on-nails)
 
