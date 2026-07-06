@@ -43,46 +43,46 @@ Wrong size is why press-on nails pop off. Not the glue. Not the tabs. The fit. A
 
 Six hand types. Most people skip this and just grab whatever's trending. That's why the nails look off. Find your type below, then pick from that list — not from TikTok.
 
-![The Ultimate Shape Finder — press-on nail shape guide by hand type: chubby, short & thick, conical, bony, slender, balanced— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Nail_Shape_Selection_Guide_sqsh.webp?v=1781251265)
+![The Ultimate Shape Finder — press-on nail shape guide by hand type: chubby, short & thick, conical, bony, slender, balanced | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Nail_Shape_Selection_Guide_sqsh.webp?v=1781251265)
 
 **Chubby hands** (round, full fingers)
 
-![Best press-on nail shape for chubby hands — short round and middle oval— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_59348830-b6fd-416a-a9b9-6e3de01c9654.png?v=1776667173)
+![Best press-on nail shape for chubby hands — short round and middle oval | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_59348830-b6fd-416a-a9b9-6e3de01c9654.png?v=1776667173)
 
 ✅ **Short Round, Middle Oval** — curved edge pulls the eye upward, fingers read longer
 ❌ Skip Middle Almond, Super-Long Stiletto — taper fights the finger shape; extreme length makes proportion worse
 
 **Short & Thick hands** (short fingers, wider palm)
 
-![Best press-on nail shape for short and thick hands — short square and middle oval— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_e943ee95-3068-47a5-b654-e47c71d2ba0b.png?v=1776667183)
+![Best press-on nail shape for short and thick hands — short square and middle oval | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_e943ee95-3068-47a5-b654-e47c71d2ba0b.png?v=1776667183)
 
 ✅ **Short Square, Middle Oval** — clean edge, fingers look narrower, works at the office
 ❌ Skip Long Coffin — length draws attention to the base width
 
 **Conical hands** (fingers taper to a point, wider palm)
 
-![Best press-on nail shape for conical hands — short square and long coffin— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_95d63927-5982-461b-82f5-e43bf661e8b5.png?v=1776667192)
+![Best press-on nail shape for conical hands — short square and long coffin | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_95d63927-5982-461b-82f5-e43bf661e8b5.png?v=1776667192)
 
 ✅ **Short Square, Middle Square, Long Coffin** — flat tip adds width at the end, balances the taper
 ❌ Skip Almond, Stiletto — already-pointed fingers get sharper, not better
 
 **Bony hands** (prominent knuckles, long fingers)
 
-![Best press-on nail shape for bony hands — short coffin and long coffin— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_8075e21b-695d-44e3-b85e-36c469a88f3a.png?v=1776667200)
+![Best press-on nail shape for bony hands — short coffin and long coffin | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_8075e21b-695d-44e3-b85e-36c469a88f3a.png?v=1776667200)
 
 ✅ **Short Coffin, Long Coffin** — flat tip takes attention off the knuckles
 ❌ Skip Almond, Stiletto — pointed shapes land right on the joints, makes them more obvious
 
 **Slender hands** (long, thin, even proportions)
 
-![Best press-on nail shape for slender hands — all shapes work— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_0024b939-594f-4fe7-b01b-4159b5d9e2f4.png?v=1776667209)
+![Best press-on nail shape for slender hands — all shapes work | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_0024b939-594f-4fe7-b01b-4159b5d9e2f4.png?v=1776667209)
 
 ✅ **Pretty much anything** — short almond press on nails, short oval press on nails, coffin, square, all work
 ❌ Super-Short Round is the one to avoid — looks too small against the finger length
 
 **Balanced hands** (proportions are even, palm and fingers roughly the same length)
 
-![Best press-on nail shape for balanced hands — full freedom— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_4d3bc296-8499-4b39-ac44-b6b91ab7ce4a.png?v=1776667215)
+![Best press-on nail shape for balanced hands — full freedom | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/image_4d3bc296-8499-4b39-ac44-b6b91ab7ce4a.png?v=1776667215)
 
 ✅ **Whatever you want** — natural looking press on nails? Short oval or short almond. Want drama? Long coffin or stiletto. Nothing's off-limits.
 ❌ Super-long stiletto is fragile — small contact surface, breaks easier. Fine for a night out, not for everyday.
@@ -91,7 +91,7 @@ Six hand types. Most people skip this and just grab whatever's trending. That's 
 
 ## Step 3 — Cut It Down by Lifestyle
 
-![Press-on nail shape chart — 14 shapes from super-short round 13mm to super-long stiletto 35mm— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/ryQn1.jpg?v=1776666314)
+![Press-on nail shape chart — 14 shapes from super-short round 13mm to super-long stiletto 35mm | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/ryQn1.jpg?v=1776666314)
 
 14 shapes, 13mm to 35mm — length matters as much as shape.
 

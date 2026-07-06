@@ -28,7 +28,7 @@ Three to four passes with a fine-grit file per nail. You are creating texture fo
 
 If your nails are already thin or damaged, skip this step entirely. Go straight to alcohol prep and use adhesive tabs instead of glue — they are gentler on compromised nails.
 
-![Prep the Surface: Cuticle Push and Buff — Step 1 push back never cut cuticles AAD warning, Step 2 buff lightly 3-4 passes visible grooves means too hard— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-50-31_sqsh.webp)
+![Prep the Surface: Cuticle Push and Buff — Step 1 push back never cut cuticles AAD warning, Step 2 buff lightly 3-4 passes visible grooves means too hard | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-50-31_sqsh.webp)
 
 ---
 
@@ -44,7 +44,7 @@ I learned this the hard way: more glue does not mean better hold. A thin, even l
 
 For press-on nails specifically, a study on nail surface adhesion confirms that a completely oil-free surface is the single biggest variable in bond strength [2](https://pmc.ncbi.nlm.nih.gov/articles/PMC10819305/). The glue itself matters less than whether your nail was actually clean when you applied it.
 
-![Create the Bond: Alcohol Prep and Glue — Step 3 alcohol wipe nail should look matte and feel grippy, Step 4 even full coverage no overflow, oil-free surface is the biggest variable in bond strength— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-51-01_sqsh.webp)
+![Create the Bond: Alcohol Prep and Glue — Step 3 alcohol wipe nail should look matte and feel grippy, Step 4 even full coverage no overflow, oil-free surface is the biggest variable in bond strength | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-51-01_sqsh.webp)
 
 ---
 
@@ -52,7 +52,7 @@ For press-on nails specifically, a study on nail surface adhesion confirms that 
 
 Cuticle push (2 min) → buff (1 min) → alcohol wipe (30 sec) → dehydrator + glue (1 min). I used to skip the alcohol wipe because it felt unnecessary. It is not. That 30 seconds is what turns a 2-day set into a 2-week set.
 
-![The 5-Minute Nail Prep Routine: 4 steps to 2-week wear — push cuticles back, buff lightly, alcohol wipe, dehydrator and glue— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-51-31_sqsh.webp)
+![The 5-Minute Nail Prep Routine: 4 steps to 2-week wear — push cuticles back, buff lightly, alcohol wipe, dehydrator and glue | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-51-31_sqsh.webp)
 
 ---
 

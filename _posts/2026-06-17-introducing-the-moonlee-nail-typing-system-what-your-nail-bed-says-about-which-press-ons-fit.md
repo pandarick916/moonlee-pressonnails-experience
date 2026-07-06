@@ -47,7 +47,7 @@ Look at your nail from the fingertip — flat or arched?
 - **Average** — Slight natural curve. Most press-ons work fine.
 - **Curved** — Noticeable C-curve. Flat press-ons won't sit flush at the edges. You need nails with a pronounced interior curve, or you'll get lifting within days.
 
-![Flat vs. curved nail beds — the same press-on fits completely differently depending on your curvature type— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/1774846150376.webp?v=1781357468)
+![Flat vs. curved nail beds — the same press-on fits completely differently depending on your curvature type | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/1774846150376.webp?v=1781357468)
 
 Flat vs. curved nail beds — the same press-on fits completely differently depending on your curvature type.
 
@@ -85,7 +85,7 @@ Knowing your nail type before you buy is the single highest-leverage thing you c
 3. **Test your oil level** — 2 hours after washing hands, press blotting paper to your nail bed. Oil = oily category. No transfer = normal or dry.
 4. **Match to products** — use the chart above to find your combination and the adhesive strategy that fits.
 
-![Measuring across the widest part of your nail bed — first step to finding your press on nails sizing type— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/20260520221244_sqsh.webp?v=1779286402)
+![Measuring across the widest part of your nail bed — first step to finding your press on nails sizing type | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/20260520221244_sqsh.webp?v=1779286402)
 
 Measuring across the widest part of your nail bed is the first step to finding your nail type.
 

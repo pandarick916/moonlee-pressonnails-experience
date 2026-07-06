@@ -106,7 +106,7 @@ Yes — if you remove them correctly. Warm water, dish soap, a tablespoon of oli
 - [Rose Wine](https://moonleehome.com/products/rose-wine) — short almond, low-leverage, easy daily wear
 - [Cotton Candy](https://moonleehome.com/products/cotton-candy) — clean girl, natural length, flat-nail-bed friendly
 - [Matcha Mousse](https://moonleehome.com/products/matcha-mousse-press-on-nails) — matte finish, short square, minimal snag risk
-- [Lychee Cotta — Hailey Chrome](https://moonleehome.com/products/lychee-cotta-press-on-nails) — chrome finish, functional length
+- [Lychee Cotta | Hailey Chrome](https://moonleehome.com/products/lychee-cotta-press-on-nails) — chrome finish, functional length
 
 ---
 

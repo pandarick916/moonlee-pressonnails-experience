@@ -37,7 +37,7 @@ That's a gap. Buyers are hunting for sellers in comment sections because the sup
 
 Standard sets work for most people most of the time. Custom sets are for when you have a specific vision, a specific event, or nail beds that have never fit a standard set properly.
 
-![Comparison of hand-painted custom press-on nails versus standard mass-produced press-on nails, side-by-side detail shot— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Comparison_of_hand_painted_cus_2026-06-13T08-27-49_edc0cd64-f3fb-4afa-b438-451552528f43.webp?v=1781356724)
+![Comparison of hand-painted custom press-on nails versus standard mass-produced press-on nails, side-by-side detail shot | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Comparison_of_hand_painted_cus_2026-06-13T08-27-49_edc0cd64-f3fb-4afa-b438-451552528f43.webp?v=1781356724)
 
 Hand-painted custom press-ons (left) vs. standard pre-sized sets (right) — different purposes, different price points.
 
@@ -52,7 +52,7 @@ Fit is the #1 complaint across every press-on subreddit. Wide nail beds, narrow 
 
 👉 Struggled with standard sizing? [Check your nail measurements here](https://moonleehome.com/pages/press-on-nail-size-chart) — free, 30 seconds.
 
-![Custom sizing kit with clear plastic nail templates organized by finger size for custom press-on nail fitting— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Custom_sizing_kit_with_clear_p_2026-06-13T08-27-49_18062529-f7f7-41ef-bb15-e3b5f9d3fc10.webp?v=1781356330)
+![Custom sizing kit with clear plastic nail templates organized by finger size for custom press-on nail fitting | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Custom_sizing_kit_with_clear_p_2026-06-13T08-27-49_18062529-f7f7-41ef-bb15-e3b5f9d3fc10.webp?v=1781356330)
 
 A proper sizing kit covers all 10 fingers — not just "small, medium, large."
 

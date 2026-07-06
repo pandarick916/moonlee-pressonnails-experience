@@ -16,7 +16,7 @@ That green stain is Pseudomonas aeruginosa, a bacterium that thrives in warm, da
 
 The Journal of the American Academy of Dermatology calls this Green Nail Syndrome, distinct from fungal infections. The difference matters: greenies are bacterial and surface-level. Fungus goes deeper and thickens the nail. A greenie grows out on its own — fungus doesn't [1](https://pmc.ncbi.nlm.nih.gov/articles/PMC4298286/).
 
-![Green Nail After Press-Ons: The Science — Pseudomonas aeruginosa bacterial vs fungal infection comparison, pyocyanin pigment surface stain— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-52-04_sqsh.webp)
+![Green Nail After Press-Ons: The Science — Pseudomonas aeruginosa bacterial vs fungal infection comparison, pyocyanin pigment surface stain | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-52-04_sqsh.webp)
 
 ---
 
@@ -32,7 +32,7 @@ The Journal of the American Academy of Dermatology calls this Green Nail Syndrom
 
 When to see a doctor: if the skin around the nail gets red, swollen, warm, or painful. At that point the infection has spread past the nail surface — you probably need antibiotics.
 
-![How to Treat a Greenie: 4-step recovery plan — remove press-on immediately, wipe with alcohol or vinegar, keep nail dry, let it grow out 2-4 weeks— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-52-35_sqsh.webp)
+![How to Treat a Greenie: 4-step recovery plan — remove press-on immediately, wipe with alcohol or vinegar, keep nail dry, let it grow out 2-4 weeks | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-52-35_sqsh.webp)
 
 ---
 
@@ -46,7 +46,7 @@ When to see a doctor: if the skin around the nail gets red, swollen, warm, or pa
 
 **Two-week max.** I do not wear a set longer than 14 days, no matter how well it is holding. After two weeks I take everything off, let my nails breathe for at least a day, and start fresh.
 
-![Prevent Green Nails: 4 habits that keep greenies away — size every nail, seal the edges, check daily, two-week max— MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-53-05_sqsh.webp)
+![Prevent Green Nails: 4 habits that keep greenies away — size every nail, seal the edges, check daily, two-week max | MOONLEE](https://cdn.shopify.com/s/files/1/0651/2210/7463/files/Hand_drawn_cartoon_infographic_2026-06-22T10-53-05_sqsh.webp)
 
 ---
 
