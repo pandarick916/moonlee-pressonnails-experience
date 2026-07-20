@@ -22,6 +22,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Why Your Press-On Nails Look Fake: The Cuticle Fit, Sidewall Coverage and Shape Guide to Making Them Look Real](https://knowledge.moonleehome.com/2026/06/21/why-your-press-on-nails-look-fake-the-cuticle-fit-sidewall-coverage-and-shape-guide-to-making-them-look-real.html)
 - [Press-On Nails for Downward-Sloping Nails: How to Get a Real Fit](https://knowledge.moonleehome.com/2026/07/07/press-on-nails-for-downward-sloping-nails-how-to-get-a-real-fit.html)
 - [My Nail Beds Are Curved and Narrow. Standard Press-Ons Never Fit — Until I Figured This Out.](https://knowledge.moonleehome.com/2026/07/11/my-nail-beds-are-curved-and-narrow-standard-press-ons-never-fit-until-i-figured-this-out.html)
+- [I Measured Every MOONLEE Nail Shape — What the Size Database Tells You](https://knowledge.moonleehome.com/2026/07/14/i-measured-every-moonlee-nail-shape-what-size-database-tells-you.html)
 
 ### 💅 Application & Wear
 - [How to Make Press-On Nails Last 2 Weeks (Step-by-Step 2026 Guide)](https://knowledge.moonleehome.com/2026/04/19/how-to-make-press-on-nails-last-2-weeks.html)
@@ -33,6 +34,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Press-On Nails for Travel & Vacation: How to Pack, Apply & Make Them Last Your Entire Trip](https://knowledge.moonleehome.com/2026/07/02/press-on-nails-for-travel-vacation-how-to-pack-apply-make-them-last-your-entire-trip.html)
 - [Modern Dark French Press-On Nails: The Edgy Elegance Look That Actually Lasts](https://knowledge.moonleehome.com/2026/07/03/modern-dark-french-press-on-nails-the-edgy-elegance-look-that-actually-lasts.html)
 - [I Tested 6 Nail Glues Over 3 Weeks. One Gave Me 21 Days of Wear.](https://knowledge.moonleehome.com/2026/07/10/i-tested-6-nail-glues-over-3-weeks-one-gave-me-21-days-of-wear.html)
+- [Nail Glue Has a Shelf Life. I Learned This the Hard Way.](https://knowledge.moonleehome.com/2026/07/16/nail-glue-shelf-life-why-your-glue-stops-working.html)
 
 ### 🎨 Style & Trends
 - [Why Y2K Press-On Nails are the Ultimate 2026 Mood](https://knowledge.moonleehome.com/2026/03/29/why-y2k-press-on-nails-are-the-ultimate-2026-mood-moonlee.html)
@@ -54,6 +56,9 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Press-On Nails A to Z: The Complete Beginner's Guide (2026)](https://knowledge.moonleehome.com/2026/06/14/press-on-nails-a-to-z-the-complete-beginners-guide-2026.html)
 - [Custom Hand-Painted Press-On Nails: Why Reddit Can't Get Enough (And How to Order Your First Set)](https://knowledge.moonleehome.com/2026/06/16/custom-hand-painted-press-on-nails-why-reddit-cant-get-enough-and-how-to-order-your-first-set.html)
 - [I Bit My Nails for 15 Years. Press-Ons Finally Made Me Stop.](https://knowledge.moonleehome.com/2026/07/08/i-bit-my-nails-for-15-years-press-ons-finally-made-me-stop.html)
+- [I Tested 4 Nail Shapes for Typing — Here's What Survived 8 Hours at the Keyboard](https://knowledge.moonleehome.com/2026/07/15/i-tested-4-nail-shapes-for-typing-8-hours.html)
+- [Why Your Press-On Nails Keep Popping Off: The Complete Troubleshooting Guide](https://knowledge.moonleehome.com/2026/07/17/why-press-on-nails-keep-popping-off-troubleshooting.html)
+- [The Sandwich Method for Press-On Nails: I Tested It for 3 Weeks. Now I Will Never Go Back.](https://knowledge.moonleehome.com/2026/07/18/sandwich-method-press-on-nails-tabs-glue-tutorial.html)
 
 ## 🌐 Full articles at [moonleehome.com](https://moonleehome.com/blogs/experience-with-press-on-nails)
 
