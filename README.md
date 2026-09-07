@@ -10,6 +10,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Green Nail After Press-Ons: 4-Step Fix](https://knowledge.moonleehome.com/2026/06/21/green-nail-after-press-ons-here-is-what-it-is-how-to-fix-it-and-how-to-prevent-it-from-coming-back.html)
 - [Green Nails After Press-Ons: Prevention, Treatment & When to Worry](https://knowledge.moonleehome.com/2026/08/05/green-nails-after-press-ons-the-complete-guide-to-prevention-treatment-when-to-worry.html)
 - [Extra Short Press-On Nails: The Bitten & Damaged Nail Guide](https://knowledge.moonleehome.com/2026/08/15/extra-short-press-on-nails-for-bitten-and-damaged-nails.html)
+- [How to Take Off Press-On Nails Without Damage | MOONLEE](https://knowledge.moonleehome.com/2026/08/25/how-to-take-off-press-on-nails-without-damage.html)
 
 ### 💰 Cost & Comparison
 - [Nail Glue vs Sticky Tabs: 3 Methods Ranked](https://knowledge.moonleehome.com/2026/04/09/press-on-nail-glue-vs-tabs-21-day-wear-myth.html)
@@ -17,6 +18,8 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Press On Nails vs Acrylic Nails: The 2026 Honest Cost Breakdown](https://knowledge.moonleehome.com/2026/05/25/press-on-nails-vs-acrylic-nails-cost-breakdown-2026.html)
 - [Halloween Press-On Nails: A Costume Manicure Guide](https://knowledge.moonleehome.com/2026/08/09/halloween-press-on-nails-costume-manicure-guide.html)
 - [Press-On Nails vs. Real Life: How to Survive Toilet Buttons, PIN Pads, and Your Own Keyboard](https://knowledge.moonleehome.com/2026/08/16/press-on-nails-vs-real-life-how-to-survive-toilet-buttons-pin-pads-and-your-own-keyboard.html)
+- [Solid Nail Glue vs Sticky Tabs: Which Wins? | MOONLEE](https://knowledge.moonleehome.com/2026/08/30/solid-nail-glue-vs-sticky-tabs.html)
+- [Custom Fit vs Measured Fit: Precise Sizing Wins | MOONLEE](https://knowledge.moonleehome.com/2026/09/01/custom-fit-vs-measured-fit-press-on-nails.html)
 
 ### 📏 Sizing & Fit
 - [Press-On Nails for Flat Nail Beds: The Ultimate Guide (Stop the C-Curve Torture)](https://knowledge.moonleehome.com/2026/04/11/stop-the-c-curve-torture-pain-flat-nail-beds.html)
@@ -31,6 +34,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [How to File Press-On Nails to Fit: The mm Method](https://knowledge.moonleehome.com/2026/08/06/how-to-file-press-on-nails-to-fit-the-mm-method.html)
 - [Press-On Nails for Flat Nail Beds](https://knowledge.moonleehome.com/2026/08/13/press-on-nails-for-flat-nail-beds.html)
 - [Best Press On Nails for Wide Nail Beds: No More Overhang or Gaps](https://knowledge.moonleehome.com/2026/08/14/best-press-on-nails-for-wide-nail-beds-no-more-overhang-or-gaps.html)
+- [How to Measure Your Nail Size: The Right Way | MOONLEE](https://knowledge.moonleehome.com/2026/08/28/how-to-measure-your-nail-size.html)
 
 ### 💅 Application & Wear
 - [How to Make Press-On Nails Last 2 Weeks: 7 Proven Tips](https://knowledge.moonleehome.com/2026/04/19/how-to-make-press-on-nails-last-2-weeks.html)
@@ -76,7 +80,6 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Press-On Nails for Everyone: An Accessibility Guide for Dexterity Issues, Short Nail Beds, and Uncooperative Hands](https://knowledge.moonleehome.com/2026/07/31/press-on-nails-for-everyone-accessibility-guide.html)
 - [Press-On Nails for Swimming: What Survives the Pool, Beach & Sweat](https://knowledge.moonleehome.com/2026/08/01/press-on-nails-for-swimming.html)
 - [Luxury Handmade Press-On Nails: Are They Worth It?](https://knowledge.moonleehome.com/2026/08/03/luxury-handmade-press-on-nails-are-they-worth-it.html)
-- [Press-On Nails Return Policy & Buyer Protection: What to Check Before You Order — MOONLEE](https://knowledge.moonleehome.com/2026/08/04/press-on-nails-return-policy-buyer-protection-guide.html)
 - [Where to Buy High-Quality Press-On Nails in 2026](https://knowledge.moonleehome.com/2026/08/04/where-to-buy-high-quality-press-on-nails-in-2026.html)
 - [Christmas Press-On Nails: A Holiday Manicure Guide](https://knowledge.moonleehome.com/2026/08/10/christmas-press-on-nails-holiday-manicure-guide.html)
 - [Press-On Toenails: The Complete Guide](https://knowledge.moonleehome.com/2026/08/11/press-on-toenails-guide.html)
@@ -84,6 +87,8 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Press-On Nail Lengths Explained: Short, Medium, and Long](https://knowledge.moonleehome.com/2026/08/12/press-on-nail-lengths-explained-short-medium-long.html)
 - [Who Invented False Nails: The 1954 Accident](https://knowledge.moonleehome.com/2026/08/17/who-invented-false-nails.html)
 - [Press-On Nails for Kids: Sizing Tiny Nail Beds](https://knowledge.moonleehome.com/2026/08/18/press-on-nails-for-kids-guide.html)
+- [Best Press On Nails for Small Nail Beds (2026 Guide)](https://knowledge.moonleehome.com/2026/09/03/best-press-on-nails-for-small-nail-beds.html)
+- [Press On Nail Shapes Guide: Coffin, Almond, Oval | MOONLEE](https://knowledge.moonleehome.com/2026/09/06/press-on-nail-shapes-explained-coffin-almond-stiletto-oval-which-one-actually-fits-your-fingers.html)
 
 ## 🌐 Full articles at [moonleehome.com](https://moonleehome.com/blogs/experience-with-press-on-nails)
 
