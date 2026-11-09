@@ -47,6 +47,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [How to Measure Your Nail Size: The Right Way | MOONLEE](https://knowledge.moonleehome.com/2026/08/28/how-to-measure-your-nail-size.html)
 - [Toe Press-On Nails: Fit, Footwear & Application Guide](https://knowledge.moonleehome.com/2026/10/22/toe-press-on-nails-what-actually-works.html)
 - [Apex, C-Curve and Fit: What to Check When Press-Ons Lift](https://knowledge.moonleehome.com/2026/11/01/apex-press-on-nails-why-they-lift.html)
+- [Why Your Press-On Size Can Change Between Brands and Shapes](https://knowledge.moonleehome.com/2026/11/05/press-on-nail-sizes-different-between-brands.html)
 
 ### 💅 Application & Wear
 - [How to Make Press-On Nails Last 2 Weeks (Step-by-Step 2026 Guide)](https://knowledge.moonleehome.com/2026/04/19/how-to-make-press-on-nails-last-2-weeks.html)
@@ -79,6 +80,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 ### 🔧 Removal & Care
 - [I Tested 5 Ways to Remove Press-Ons. Here's What Worked (And What I Will Never Do Again)](https://knowledge.moonleehome.com/2026/07/09/i-tested-5-ways-to-remove-press-ons-heres-what-worked-and-what-i-will-never-do-again.html)
 - [How to Take Off Press-On Nails Without Ripping Your Real Nails](https://knowledge.moonleehome.com/2026/10/20/how-to-take-off-press-on-nails.html)
+- [How to Remove Press-Ons Without Acetone: Check Your Adhesive First](https://knowledge.moonleehome.com/2026/11/03/how-to-remove-press-on-nails-without-acetone.html)
 
 ### 📖 Other
 - [Press-On Nails for Work: The Workday Series by MOONLEE](https://knowledge.moonleehome.com/2026/04/01/press-on-nails-for-work-workday-series.html)
@@ -115,6 +117,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Extra Short Press-On Nails: 4 Shapes That Don't Look Like Stubs](https://knowledge.moonleehome.com/2026/10/16/extra-short-press-on-nails-shapes.html)
 - [Why Your Press-Ons Catch on Your Hair (And What to Check First)](https://knowledge.moonleehome.com/2026/10/27/why-press-on-nails-catch-on-hair.html)
 - [How Many Nails Come in a Press-On Set? What the Count Tells You](https://knowledge.moonleehome.com/2026/10/29/how-many-nails-in-a-press-on-set.html)
+- [How to Choose a Press-On Nail Brand: Six Checks Before You Buy](https://knowledge.moonleehome.com/2026/11/07/how-to-choose-press-on-nail-brands.html)
 
 ## 🌐 Full articles at [moonleehome.com](https://moonleehome.com/blogs/experience-with-press-on-nails)
 
