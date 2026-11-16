@@ -48,6 +48,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Toe Press-On Nails: Fit, Footwear & Application Guide](https://knowledge.moonleehome.com/2026/10/22/toe-press-on-nails-what-actually-works.html)
 - [Apex, C-Curve and Fit: What to Check When Press-Ons Lift](https://knowledge.moonleehome.com/2026/11/01/apex-press-on-nails-why-they-lift.html)
 - [Why Your Press-On Size Can Change Between Brands and Shapes](https://knowledge.moonleehome.com/2026/11/05/press-on-nail-sizes-different-between-brands.html)
+- [Can You Flatten Press-On Nails With Hot Water? Yes, With a Catch](https://knowledge.moonleehome.com/2026/11/13/flatten-press-on-nails-hot-water.html)
 
 ### 💅 Application & Wear
 - [How to Make Press-On Nails Last 2 Weeks (Step-by-Step 2026 Guide)](https://knowledge.moonleehome.com/2026/04/19/how-to-make-press-on-nails-last-2-weeks.html)
