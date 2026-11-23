@@ -29,6 +29,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Square vs Round vs Ballerina Press-On Nails | MOONLEE](https://knowledge.moonleehome.com/2026/09/11/square-vs-round-vs-ballerina-press-on-nails.html)
 - [Press-On Nails Price Guide: $1.25 to $25 Tiers | MOONLEE](https://knowledge.moonleehome.com/2026/09/20/press-on-nails-at-every-price-point-1-25-dollar-tree-vs-25-premium-what-actually-matters.html)
 - [Handmade vs Factory Press-On Nails: What to Compare](https://knowledge.moonleehome.com/2026/10/18/handmade-vs-factory-press-on-nails.html)
+- [Soft Gel vs Hard Press-Ons: What Material Can't Fix](https://knowledge.moonleehome.com/2026/11/21/soft-gel-vs-hard-press-ons-what-material-cannot-fix.html)
 
 ### 📏 Sizing & Fit
 - [Press-On Nails for Flat Nail Beds: The Ultimate Guide (Stop the C-Curve Torture)](https://knowledge.moonleehome.com/2026/04/11/stop-the-c-curve-torture-pain-flat-nail-beds.html)
@@ -49,6 +50,7 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Apex, C-Curve and Fit: What to Check When Press-Ons Lift](https://knowledge.moonleehome.com/2026/11/01/apex-press-on-nails-why-they-lift.html)
 - [Why Your Press-On Size Can Change Between Brands and Shapes](https://knowledge.moonleehome.com/2026/11/05/press-on-nail-sizes-different-between-brands.html)
 - [Can You Flatten Press-On Nails With Hot Water? Yes, With a Catch](https://knowledge.moonleehome.com/2026/11/13/flatten-press-on-nails-hot-water.html)
+- [Best Press On Nails for Wide Nail Beds: No More Overhang or Gaps](https://knowledge.moonleehome.com/2026/11/19/best-press-on-nails-for-wide-nail-beds-no-more-overhang-or-gaps.html)
 
 ### 💅 Application & Wear
 - [How to Make Press-On Nails Last 2 Weeks (Step-by-Step 2026 Guide)](https://knowledge.moonleehome.com/2026/04/19/how-to-make-press-on-nails-last-2-weeks.html)
@@ -119,6 +121,8 @@ Open-source nail care knowledge by [MOONLEE](https://moonleehome.com)
 - [Why Your Press-Ons Catch on Your Hair (And What to Check First)](https://knowledge.moonleehome.com/2026/10/27/why-press-on-nails-catch-on-hair.html)
 - [How Many Nails Come in a Press-On Set? What the Count Tells You](https://knowledge.moonleehome.com/2026/10/29/how-many-nails-in-a-press-on-set.html)
 - [How to Choose a Press-On Nail Brand: Six Checks Before You Buy](https://knowledge.moonleehome.com/2026/11/07/how-to-choose-press-on-nail-brands.html)
+- [Ten Nails or Twenty-Four: What You Actually Get in a Press-On Set](https://knowledge.moonleehome.com/2026/11/16/press-on-nails-10-piece-vs-24-piece-set.html)
+- [Why Press-On Nails Look Dirty at the Edges — What to Check](https://knowledge.moonleehome.com/2026/11/23/why-press-on-nails-look-dirty-at-the-edges.html)
 
 ## 🌐 Full articles at [moonleehome.com](https://moonleehome.com/blogs/experience-with-press-on-nails)
 
